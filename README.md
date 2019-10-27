@@ -1,0 +1,1 @@
+# Sznajd_Model
